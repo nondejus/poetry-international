@@ -1,2 +1,2 @@
 # poetry-international
-![](https://github.com/nondejus/international-poetry/blob/main/images%20(16).jpeg)
+![](https://github.com/nondejus/poetry-international/blob/main/9180825.jpg)
